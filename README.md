@@ -11,8 +11,7 @@ Odysee https://odysee.com/@VikingAlgeria
 
 [![Watch the video](https://img.youtube.com/vi/9CGfSW6Vcq0/maxresdefault.jpg)](https://youtu.be/9CGfSW6Vcq0)
 
-## ON ODYSEE ![odysee_white (1)](https://user-images.githubusercontent.com/45120897/215579254-20f3f349-f097-4d97-bf6e-2d3155217a8b.png)
-
+## ON ODYSEE ![odysee_white (1)](https://user-images.githubusercontent.com/45120897/215580058-aa512368-1253-45d5-ac0b-bbf5ab14fd6a.png)
 
 [![Watch the video](https://img.youtube.com/vi/9CGfSW6Vcq0/maxresdefault.jpg)](https://odysee.com/@VikingAlgeria:5/%F0%9F%94%A5gifs-with-sound-coub-mix-!-101:3?r=HrKVKM8smj5NiSfwxGfxcCy8NRs92GdJ)
 
