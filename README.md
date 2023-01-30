@@ -5,6 +5,11 @@ if you can help, youre very well to.
 Discord https://discord.gg/mhj5XKp
 Odysee https://odysee.com/@VikingAlgeria
 
+### 📌*NOTE*:
+BEFORE YOU COMMENT ASKING FOR SONG'S/ANIME NAMES, CHECK IF I MENTIONED THEM IN THE LIST…PLEASE
+0:00 intro song: Never Go Away :
+-Anime : kaguya sama love is war
+http://bit.ly/vaintro2
 
 # WATCH GWS 101:
 ## ON YOUTUBE  ![youtube-logo-8 (1)](https://user-images.githubusercontent.com/45120897/215579531-8d5e832b-561b-42aa-80d1-e11a78bb06c6.png)
