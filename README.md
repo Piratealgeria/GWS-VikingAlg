@@ -1,6 +1,6 @@
 # VIKING ALGERIA GWSLists
 Still on progress, and still learning to use GitHub
-if you can help, youre very well to.
+if you can help, youre very welcome to.
 
 Discord <https://discord.gg/mhj5XKp> <br>
 Odysee <https://odysee.com/@VikingAlgeria>
@@ -16,10 +16,10 @@ BEFORE YOU COMMENT ASKING FOR SONG'S/ANIME NAMES, CHECK IF I MENTIONED THEM IN T
 # WATCH GWS 103:
 ## ON YOUTUBE  ![youtube-logo-8 (1)](https://user-images.githubusercontent.com/45120897/215579531-8d5e832b-561b-42aa-80d1-e11a78bb06c6.png)
 
-[![Watch the video](https://img.youtube.com/vi/XxXfsuekdKo/maxresdefault.jpg)](https://youtu.be/XxXfsuekdKo)
+[![Watch the video](https://img.youtube.com/vi/OKS5ZsCbbx8/maxresdefault.jpg)](https://youtu.be/OKS5ZsCbbx8)
 
 ## ON ODYSEE ![odysee_white (1)](https://user-images.githubusercontent.com/45120897/215580058-aa512368-1253-45d5-ac0b-bbf5ab14fd6a.png)
 
-[![Watch the video](https://img.youtube.com/vi/XxXfsuekdKo/maxresdefault.jpg)](https://odysee.com/@VikingAlgeria)
+[![Watch the video](https://img.youtube.com/vi/OKS5ZsCbbx8/maxresdefault.jpg)](https://odysee.com/@VikingAlgeria)
 
 
