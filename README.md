@@ -13,7 +13,7 @@ BEFORE YOU COMMENT ASKING FOR SONG'S/ANIME NAMES, CHECK IF I MENTIONED THEM IN T
 > ANIME IN THE INTRO : kaguya sama love is war <br>
 > OUTRO SONG : Outro: Peace And Tranquility (Chillwave Version) -by Production Music
 
-# WATCH GWS 104:
+# WATCH GWS 108:
 ## ON YOUTUBE  ![youtube-logo-8 (1)](https://user-images.githubusercontent.com/45120897/215579531-8d5e832b-561b-42aa-80d1-e11a78bb06c6.png)
 
 [![Watch the video](https://img.youtube.com/vi/A8561rhD_vQ/maxresdefault.jpg)](https://youtu.be/VRlieVdTznQ)
