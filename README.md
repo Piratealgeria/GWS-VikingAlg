@@ -16,10 +16,10 @@ BEFORE YOU COMMENT ASKING FOR SONG'S/ANIME NAMES, CHECK IF I MENTIONED THEM IN T
 # WATCH GWS 108:
 ## ON YOUTUBE  ![youtube-logo-8 (1)](https://user-images.githubusercontent.com/45120897/215579531-8d5e832b-561b-42aa-80d1-e11a78bb06c6.png)
 
-[![Watch the video](https://img.youtube.com/vi/A8561rhD_vQ/maxresdefault.jpg)](https://youtu.be/VRlieVdTznQ)
+[![Watch the video](https://img.youtube.com/vi/A8561rhD_vQ/L8w42GPUgYM.jpg)](https://youtu.be/L8w42GPUgYM)
 
 ## ON ODYSEE ![odysee_white (1)](https://user-images.githubusercontent.com/45120897/215580058-aa512368-1253-45d5-ac0b-bbf5ab14fd6a.png)
 
-[![Watch the video](https://img.youtube.com/vi/A8561rhD_vQ/maxresdefault.jpg)](https://odysee.com/@VikingAlgeria)
+[![Watch the video](https://img.youtube.com/vi/A8561rhD_vQ/L8w42GPUgYM.jpg)](https://odysee.com/@VikingAlgeria)
 
 
